@@ -1,2 +1,2 @@
 # Christopher-Ram-rez
-I love myseld
+I love myself
